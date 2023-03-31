@@ -1,4 +1,2 @@
 # NuclearCraftFullModpack
 I DID NOT MAKE ANY OF THESE MODS, THIS IS SIMPLY A COLLECTION OF THEM FOR 1.12.2
-
-Verycool :)
